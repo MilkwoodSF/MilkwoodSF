@@ -1,4 +1,4 @@
-### A chicken is an egg's way of making another egg.    - Robert Sapolsky <br>
+###"Always the beautiful answer who asks a more beautiful question." - e. e. cummings<br>
 
 <!--
 -->
